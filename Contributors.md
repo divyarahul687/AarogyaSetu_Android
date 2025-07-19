@@ -9,6 +9,7 @@ Gopala Krishnan S
 R S Mani  
 Abhishek Singh  
 Dr. Seema Khanna  
+Dr. Divya
 
 ---------------------------------
 Industry and Academia Leadership
